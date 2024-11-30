@@ -1,2 +1,0 @@
-#salam azizam
-salam mojadad
